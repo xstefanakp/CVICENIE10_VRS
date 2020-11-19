@@ -1,0 +1,1 @@
+# CVICENIE10_VRS
